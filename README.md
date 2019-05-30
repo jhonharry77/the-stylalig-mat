@@ -1,0 +1,2 @@
+# the-stylalig-mat
+Slicing boards can play a powerful role in your compositions, so don’t fail to remember these priceless instruments. All design, from architecture to floral design, is exciting to the eye when the standards of design are used. There’s a rationale most persons appear at things and immediately have a response to whether or not they love it or now not. Many times it’s tricky to articulate why we like or don’t like what we’re watching at, our eyes just recognize that anything is off stability. 
